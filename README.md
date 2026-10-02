@@ -1,4 +1,4 @@
-# vahid nezamivand Chegane
+# Vahid Nezamivand Chegane
 
 ## About Me
 I am an independent researcher and conceptual framework designer working at the intersection of:
